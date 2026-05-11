@@ -1,4 +1,4 @@
-
+Experience ink game like never before with stealth Script for ink game, the #1 Script. Includes auto-collect and silent aim for unbeatable
 
 
 
